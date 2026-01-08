@@ -63,6 +63,6 @@ Help policymakers plan sustainable harvesting and conservation strategies
 
 Conclusion
 
-Technology enables real-time monitoring, better enforcement, community participation, and data-driven decisions, making forest management more effective and sustainable—especially important for countries facing deforestation and climate change challenges 🌳🌱.
+Technology enables real-time monitoring, better enforcement, community participation, and data-driven decisions, making forest management more effective and sustainable especially important for countries facing deforestation and climate change challenges 🌳🌱.
 
 If you want, I can tailor this answer to Kenya, exam revision, or project writing.
